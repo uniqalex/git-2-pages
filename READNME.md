@@ -1,4 +1,4 @@
-# Shapkin ALexander
+# [Shapkin ALexander](img/me_netoL.jpg)
 ## MS SQL Developer
 
 ### Contacts:
